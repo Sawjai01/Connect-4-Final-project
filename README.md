@@ -25,9 +25,9 @@ Journey through this project:
 - Aside from struggling hard, I actually learned a lot in this project and overall this course in general. I enjoyed actually created this game, where I was like, " OH THIS IS HOW YOU DO IT. WAIT NEVERMIND THAT'S NOT HOW YOU DO IT. OHHHHH WHAT IF I DID THIS". It was quite a journey and I hated and loved every second of it. Although I couldn't finish this project that I envisioned on. I'm glad that I'm able to progress and learn from it.
 - Recording my presentation was also what I hated the most. I have stage fright and I am EXTREMELY nervous in front of audience.
       - The recording you see: Me being very nervous, when you see a unsure pause(I was literally gulping because I can't stand hearing my own voice and recording myself infront of a audience. Afraid that I don't know what I'm talking about. 
-      - But, I was glad it was including in this project because more practice makes me better at presenting, although in this case, I didn't really do well.
+      - But, I was glad a video presentation was included in this project because more practice makes me better at presenting, although in this case, I didn't really do well.
 
-Overall, this journey was a cold/hot breeze. Enjoyed every hour/sec/min of it. 
+Overall, this journey was a cold/hot breeze. Enjoyed/hate every hour/sec/min of it. 
 
 URL link for the presentation: 
 https://youtu.be/q65PZVmtC0I
